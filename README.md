@@ -8,5 +8,3 @@ univers is amazingthailand.
 ## Human
 
 Human no diff with and because if compare with univers human just dust.
-
-Ohhhhhhhh wowww that sound amazing

@@ -1,6 +1,6 @@
 ![Logo](https://hexagon.com/-/media/project/one-web/master-site/mi/open-graph-images/space.jpg)
 
-# This is univers
+# This is Univers
 
 univers is amazingthailand.
 
